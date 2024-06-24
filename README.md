@@ -5,9 +5,9 @@
 **Maddihope12/Maddihope12** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 
-I hope to achieve happiness and finish my a-levels
-I'm currently studying physics, maths and french
-In the future I either want to continue studying maths or do an animation degree!
+I hope to finish my a-levels with good grades 😄,
+I'm currently studying physics, maths and french 😲🤔
+In the future I either want to continue studying maths or do an animation degree! 😆 
 
 - 🔭 I’m currently working on ...
 - 🌱 I’m currently learning ...
